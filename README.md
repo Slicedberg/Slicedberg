@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Slicedberg
+- 👀 I’m not interested in filling out this README
+- 🌱 I’m currently learning how to fill out this README
+- 💞️ I’m looking to collaborate on other README's
+- 📫 How to reach me: don't.
+- 😄 Pronouns: READ/ME
+- ⚡ Fun fact: You READ this.
